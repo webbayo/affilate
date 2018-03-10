@@ -1,0 +1,2 @@
+# affilate
+affilate readme
