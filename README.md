@@ -1,5 +1,5 @@
 # affilate
 affilate readme
-A Song about affilate marketing.
+Join the affilate marketing.
 
-The busiess it real.
+The busiess it is real.
