@@ -2,4 +2,4 @@
 affilate readme
 Join the affilate marketing.
 
-The busiess it is real.
+The business is real join me.
